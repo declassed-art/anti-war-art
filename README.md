@@ -4,7 +4,7 @@
 
 https://declassed.art/en/gallery/terminal-decay
 
-2023-03-25 Oil on MDF, 13x10.4 in (33x26.5 cm)
+2023-03-25 Assemblage, Oil on MDF, 13x10.4 in (33x26.5 cm)
 
 As I see it, Russian patriots have reached the terminal decay, buying Shahed drones from Iran, renaming them to Geranium and with a thought To Berlin! killing other slavs.
 
